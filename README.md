@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @CrazyBoy2704
+- 👀 I’m interested in Ai
+- 🌱 I’m currently learning Python
+- 📫 Discord: CrazyBoy2704
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: i am not smart
